@@ -1,8 +1,8 @@
-#### 1 Warriors blew a 3-1 lead.
+#### 1
 #### 2
 #### 3 KD Steph And Klay Are Winning 
 #### 4
-#### 5
+#### 5 Kyrie 4 MVP
 #### 6
 #### 7 Cousins 4 MVP
 #### 8
